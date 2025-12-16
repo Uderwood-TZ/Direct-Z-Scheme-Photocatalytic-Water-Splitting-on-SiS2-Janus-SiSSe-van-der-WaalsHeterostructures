@@ -1,0 +1,1 @@
+# Direct-Z-Scheme-Photocatalytic-Water-Splitting-on-SiS2-Janus-SiSSe-van-der-WaalsHeterostructures
